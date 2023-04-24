@@ -1,2 +1,2 @@
-![xetjzh](loge.jpg''xetjzh'')
+![xetjzh](loge.jpg)
 #你好
